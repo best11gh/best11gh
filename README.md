@@ -1,4 +1,4 @@
-### 👋 Hi there! I'm student studying coding❤️
+### 👋 Hi there!
 
 
 <!--
